@@ -17,11 +17,11 @@ author: cys
 
 Comecei o dia chegando bem cedo no Mo Gun em Ipanema, comecei a escrever alguns dos 36 temas fundamentais, mas antes do café fazer efeito só tinha uns 5 temas listados.
 
-Os demais irmão foram chegando: Rodrigo, depois Alex Rangel e por fim Simão. Fui usando o cérebro deles e expandi minha lista para 12. 1/3 do trabalho já feito, nada mal para um café rápido.
+Os demais irmãos foram chegando: Rodrigo, depois Alex Rangel e por fim Simão. Fui usando o cérebro deles e expandi minha lista para 12. 1/3 do trabalho já feito, nada mal para um café rápido.
 
 Conversamos sobre expectativas deles para nossa viagem. Rodrigo está bem empenhado no Programa Fundamental e nos solicitou a preparação de algum material em vídeo que iremos providenciar.
 
-Em seguida fomos para o Mo Gun onde fiquei trabalhando com a Bianca e Simão até a chegada do Guilherme que iria nos render para que podessemos ir para o Méier.
+Em seguida fomos para o Mo Gun onde fiquei trabalhando com a Bianca e Simão até a chegada do Guilherme que iria nos render para que pudéssemos ir para o Méier.
 
 ## Reunindo os itens - Méier
 Temos alguns itens importantes nos Mo Gun que iremos levar para o Si Fu. O Antunes está responsável por reunir a maioria deles, a Carmen também irá despachar alguns que já estão com elas.
