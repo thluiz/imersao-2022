@@ -22,7 +22,7 @@ Si Fu deixou 3 "encomendas" para cada cada um de nós:
 
 - **36 temas fundamentais:** Levaremos nossas ideias de temas fundamentais para ajudar nas definições para o próximo ano;
 - **3 vídeos ou podcasts:** Será um exercício bem interessante, iremos ter estudos transversais sobre esses conteúdos escolhidos;
-- **Lista de ações discipulares para divulgação e preservação do nosso legado:** Esse é auto-explicativo, como discípulos precisamos pensar nas ações para preservar nosso legado - Esse site já é um desses movimentos, pretendo fazer um post técnico no https://kungfu.codes sobre as considerações técnicas para ele, mas fica para outro momento;
+- **Lista de ações discipulares para divulgação e preservação do nosso legado:** Esse é auto-explicativo, como discípulos precisamos pensar nas ações para preservar nosso legado - Esse site já é um desses movimentos, pretendo fazer um post técnico no https://kungfu.codes sobre ele, mas fica para outro momento;
 
 Amanhã seguiremos nos preparativos, vou conversar com o pessoal no Mo Gun em Ipanema e no Méier sobre expectativas organizar alguns itens que precisamos despachar e comprar algumas coisas que preciso no Rio;
 
