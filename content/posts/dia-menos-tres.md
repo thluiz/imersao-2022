@@ -1,5 +1,5 @@
 ---
-title: "Dia -3: Reunião de Sintonia"
+title: "Dia -3: Reunião de Sintonia - Thiago Silva"
 date: 2022-11-18T23:00:00-03:00
 draft: false
 image: /images/posts/dia-menos-tres.jpg
@@ -7,7 +7,7 @@ ogImageWidth: 1083
 ogImageHeight: 236
 post_card_class: 'post-card-dia-menos-tres'
 summary: 'Como foi a reunião de sintonia por Thiago Silva'
-subtitle:  'por Thiago Silva'
+subtitle:  'Como foi a reunião de sintonia por Thiago Silva'
 author: cys
 ---
 # Reunião de Sintonia

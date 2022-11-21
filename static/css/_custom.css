@@ -1,3 +1,15 @@
 .post-card-dia-menos-tres {
     filter: blur(8px) brightness(50%) !important;
 }
+
+.post-card-dia-menos-dois {
+    filter: blur(8px) brightness(50%) !important;
+}
+
+.post-card-dia-menos-um {
+    filter: blur(8px) brightness(50%) !important;
+}
+
+.hero-content {
+    text-shadow: 5px 5px 6px rgb(0 0 0 / 90%);
+}
