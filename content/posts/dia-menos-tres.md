@@ -17,7 +17,7 @@ Nesta sexta-feira (18/11) fizemos nossa reunião de sintonia para a viagem da pr
 Foi uma reunião bem leve, como tem sido esse novo momento da família. Conversamos sobre expectativas, a programação dos próximos dias e sobre os 3 pontos principais para essa viagem:
 
 - **ser Fluida:** Não queremos travar, vamos seguir os fluxos naturais;
-- **ser Prazeroza:** Kung Fu tem que ser como a vida, é pesado em alguns momentos, mas também é leve em outros;
+- **ser Prazerosa:** Kung Fu tem que ser como a vida, é pesado em alguns momentos, mas também é leve em outros;
 - **ser Memorável:** Esse é um momento histórico para nossa família, mas devemos celebrar de forma adulta.
 
 Amanhã seguiremos nos preparativos, vou conversar com o pessoal no Mo Gun em Ipanema e no Méier sobre expectativas, organizar alguns itens que precisamos despachar e algumas compras que preciso no Rio;
