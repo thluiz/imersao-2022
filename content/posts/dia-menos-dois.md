@@ -1,5 +1,5 @@
 ---
-title: "Dia -2: Preparativos - Thiago Silva"
+title: "Dia -2: Preparativos"
 date: 2022-11-19T23:00:00-03:00
 draft: false
 image: /images/posts/dia-menos-dois.jpg

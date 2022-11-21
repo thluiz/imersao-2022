@@ -1,5 +1,5 @@
 ---
-title: "Dia -3: Reunião de Sintonia - Thiago Silva"
+title: "Dia -3: Reunião de Sintonia"
 date: 2022-11-18T23:00:00-03:00
 draft: false
 image: /images/posts/dia-menos-tres.jpg

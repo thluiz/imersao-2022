@@ -1,5 +1,5 @@
 ---
-title: "Dia -1: Fazendo as Malas - Thiago Silva"
+title: "Dia -1: Fazendo as Malas"
 date: 2022-11-20T23:00:00-03:00
 draft: false
 image: /images/posts/dia-menos-um.jpg
