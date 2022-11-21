@@ -1,3 +1,7 @@
+.post-card-dia {
+    filter: blur(8px) brightness(50%) !important;
+}
+
 .post-card-dia-menos-tres {
     filter: blur(8px) brightness(50%) !important;
 }
