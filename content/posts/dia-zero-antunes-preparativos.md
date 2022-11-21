@@ -3,11 +3,11 @@ title: "Dia 0: Preparativos"
 date: 2022-11-21T17:00:00-03:00
 draft: false
 image: /images/posts/dia-zero/dia-zero-antunes-preparativos.jpg
-ogImageWidth: 760
-ogImageHeight: 205
+ogImageWidth: 1200
+ogImageHeight: 1600
 post_card_class: 'post-card-dia'
-summary: 'Preparando os itens para a viagem'
-subtitle:  'Preparando os itens para a viagem'
+summary: 'Quando a viagem começou? por Carlos Antunes'
+subtitle:  'Quando a viagem começou? por Carlos Antunes'
 author: ss
 ---
 
