@@ -14,17 +14,13 @@ author: cys
 
 Nesta sexta-feira (18/11) fizemos nossa reunião de sintonia para a viagem da próxima semana. Foi um kick-off definitivo para a viagem, praticamente todo o final de semana dedicado a isso.
 
-Foi uma reunião bem leve, como tem sido esse novo momento da família. Conversamos sobre expectativas e a programação dos próximos dias.
+Foi uma reunião bem leve, como tem sido esse novo momento da família. Conversamos sobre expectativas, a programação dos próximos dias e sobre os 3 principais eixos para essa viagem:
 
-## Primeiras atividades
+- **a Fluidez:** Não queremos travar, vamos seguir os fluxos naturais;
+- **o Prazer:** Kung Fu tem que ser como a vida, é pesado em alguns momentos, mas também é leve em outros;
+- **que seja Memorável:** Esse é um momento histórico para nossa família, mas devemos celebrar de forma adulta.
 
-Si Fu deixou 3 "encomendas" para cada um de nós:
-
-- **36 temas fundamentais:** Levaremos nossas ideias de temas fundamentais para ajudar nas definições para o próximo ano;
-- **3 vídeos ou podcasts:** Será um exercício bem interessante, iremos ter estudos transversais sobre esses conteúdos escolhidos;
-- **Lista de ações discipulares para divulgação e preservação do nosso legado:** Esse é autoexplicativo, como discípulos precisamos pensar nas ações para preservar nosso legado - Esse site já é um desses movimentos, pretendo fazer um post técnico no https://kungfu.codes sobre ele, mas fica para outro momento;
-
-Amanhã seguiremos nos preparativos, vou conversar com o pessoal no Mo Gun em Ipanema e no Méier sobre expectativas organizar alguns itens que precisamos despachar e comprar algumas coisas que preciso no Rio;
+Amanhã seguiremos nos preparativos, vou conversar com o pessoal no Mo Gun em Ipanema e no Méier sobre expectativas, organizar alguns itens que precisamos despachar e algumas compras que preciso no Rio;
 
 Até!
 
