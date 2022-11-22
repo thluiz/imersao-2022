@@ -23,7 +23,7 @@ Chegando aqui revisamos as malas para garantir que todos os itens estivessem gua
 
 Com isso, todos os pontos importantes para a viagem estão finalizados.
 
-Agora é relaxar um pouco. Antunes quis fazer hamburgueres e jantamos com a família dele num ambiente bem descontraído. Em seguida vimos o jogo dos 49ers, ficamos comparando as regras e jogadas da NFL com Rugby (que eu conheço um pouco mais). Foi um bom fim de noite para nos recarregarmos.
+Agora é relaxar um pouco. Antunes quis fazer hamburgueres e jantamos com a família dele num ambiente bem descontraído. Em seguida vimos o jogo dos 49ers, ficamos comparando as regras e jogadas da NFL com Rugby (que eu conheço um pouco mais). Foi um bom fim de noite para nos recarregar.
 
 Amanhã cedo teremos uma postagem breve sobre o embarque e o despacho das malas e obras.
 
