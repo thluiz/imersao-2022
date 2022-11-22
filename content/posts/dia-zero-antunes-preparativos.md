@@ -1,13 +1,13 @@
 ---
-title: "Dia 0: Preparativos"
+title: "Dia 0: Preparativos por Carlos Antunes"
 date: 2022-11-21T17:00:00-03:00
 draft: false
 image: /images/posts/dia-zero/dia-zero-antunes-preparativos.jpg
 ogImageWidth: 1200
 ogImageHeight: 1600
 post_card_class: 'post-card-dia'
-summary: 'Quando a viagem começou? por Carlos Antunes'
-subtitle:  'Quando a viagem começou? por Carlos Antunes'
+summary: 'Quando a viagem começou?'
+subtitle:  'Quando a viagem começou?'
 author: ss
 ---
 

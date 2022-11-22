@@ -1,14 +1,14 @@
 ---
-title: "Dia 0: A Pré-Viagem"
+title: "Dia 0: A Pré-Viagem por Carmen Maris"
 date: 2022-11-21T20:00:00-03:00
 draft: false
 image: /images/posts/dia-zero/dia-zero-carmen-embalados.jpeg
-ogImageWidth: 1200
-ogImageHeight: 1600
+ogImageWidth: 720
+ogImageHeight: 1280
 post_card_class: 'post-card-dia'
-summary: 'O momento certo por Carmen Maris'
-subtitle:  'O momento certo por Camen Maris'
-author: ss
+summary: 'Quando é o momento certo?'
+subtitle:  'Quando é o momento certo?'
+author: km
 ---
 
 # A Pré-Viagem
@@ -32,6 +32,5 @@ _梅 吉 明_
 
 ***
 
-Quadro Si Taai Gung Moy Yat
-
+_Obra de arte do Si Taai Gung Moy Yat que leveremos para o Si Fu_
 ![Quadro Si Taai Gung Moy Yat](/images/posts/dia-zero/dia-zero-carmen-quadro-moy-yat.jpeg)
