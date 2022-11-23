@@ -52,6 +52,8 @@ O fechamento do dia não poderia ser melhor, rodamos por algum tempo em busca de
 
 Obrigado Si Fu e Si Mo!
 
+***
+
 Amanhã vamos definir a programação e começar os preparativos para o thanks giving.
 
 Até!
