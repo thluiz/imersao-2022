@@ -35,6 +35,8 @@ Depois de fazer mercado para comprar os itens do Thanksgiving, ficamos buscando 
 
 ![Todos no Apple Bees com a Si Mo](/images/posts/dia-01/apple-bees-antunes-si-mo.jpeg)
 
+Assim como o General que simulou reverências com os dedos ao ser servido pelo imperador, fomos duplamente contemplados com o carinho e cuidado da Si Mo e do Si Fu conosco... E esse foi apenas o primeiro dia.
+
 --  
 _Carlos Antunes_  
 _Moy Shan Si_  
