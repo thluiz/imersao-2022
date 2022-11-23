@@ -11,7 +11,7 @@ subtitle:  ''
 author: ss
 ---
 
-# A viagem e a chegada!
+# A viagem e a chegada
 
 Finalmente os meses de pré-evento terminaram e o dia do embarque chegou.
 
