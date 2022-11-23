@@ -6,8 +6,8 @@ image: /images/posts/dia-01/chegada.jpeg
 ogImageWidth: 1280
 ogImageHeight: 958
 post_card_class: 'post-card-dia'
-summary: 'Chegada à Flórida!'
-subtitle:  'Chegada à Flórida!'
+summary: ''
+subtitle:  ''
 author: cys
 ---
 
