@@ -34,14 +34,14 @@ Num dia que foi composto por caminhada, conversas, idas em quatro mercados difer
 ![Jantar com Si Taai Vera](/images/posts/dia-02/jantar-com-si-taai-vera.jpg)
 
 
-![Si Fu, Mestre Julio Camacho, e Carlos Antunes falando sobre Baat Jaam Do](/images/posts/dia-02/si-fu-mestre-julio-camacho-carlos-antunes.jpg)
+![Si Fu, Mestre Julio Camacho, e Carlos Antunes falando sobre Baat Jaam Do](/images/posts/dia-02/si-fu-mestre-julio-camacho-carlos-antunes-bjd-2.jpg)
 
 
 Mas os momentos não valem pelo tempo que duram e sim pelo efeito que causam, pelo quanto são memoráveis e principalmente pela quantidade de vida com a qual se consegue rechear um momento qualquer.
 
 Hoje, tivemos um dia cheio de vida e fomos estimulados a viver o momento, porque o momento é, na verdade, tudo que temos.
 
-![Si Fu, Mestre Senior Julio Camacho, e Carlos Antunes](/images/posts/dia-02/si-fu-mestre-julio-camacho-carlos-antunes.jpeg)
+![Si Fu, Mestre Senior Julio Camacho, e Carlos Antunes](/images/posts/dia-02/si-fu-mestre-julio-camacho-carlos-antunes-mesa.jpeg)
 
 
 --  
