@@ -1,13 +1,13 @@
 ---
-title: "Dia 3: Dia de Ação de Graças - Parte 1 - Por Thiago Silva"
+title: "Dia 3: Dia de Ação de Graças - Parte 1 - Caminhada - Por Thiago Silva"
 date: 2022-11-25T03:35:00-05:00
 draft: false
 image: /images/posts/dia-03/caminhada-2-cropped.jpg
-ogImageWidth: 1280
-ogImageHeight: 958
+ogImageWidth: 1040
+ogImageHeight: 493
 post_card_class: 'post-card-dia'
-summary: 'Primeira Parte - Ínicio do Dia'
-subtitle:  'Primeira Parte - Ínicio do Dia'
+summary: ''
+subtitle:  ''
 author: cys
 ---
 
