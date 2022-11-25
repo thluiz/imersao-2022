@@ -2,7 +2,7 @@
 title: "Dia 3: Dia de Ação de Graças - Parte 1 - Por Thiago Silva"
 date: 2022-11-25T03:35:00-05:00
 draft: false
-image: /images/posts/dia-02/serendipidade.jpg
+image: /images/posts/dia-03/caminhada-2-cropped.jpg
 ogImageWidth: 1280
 ogImageHeight: 958
 post_card_class: 'post-card-dia'
