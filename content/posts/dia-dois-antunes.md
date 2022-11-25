@@ -1,5 +1,5 @@
 ---
-title: "Dia 2: O grande e o pequeno"
+title: "Dia 2: O grande e o pequeno por Carlos Antunes"
 date: 2022-11-23T23:15:00-03:00
 draft: false
 image: /images/posts/dia-02/jantar-com-si-taai-vera-cropped.jpg
