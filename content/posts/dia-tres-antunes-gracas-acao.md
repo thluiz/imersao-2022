@@ -1,5 +1,5 @@
 ---
-title: "Dia 3: Graças à ação"
+title: "Dia 3: Graças à ação por Carlos Antunes"
 date: 2022-11-25T03:30:00-05:00
 draft: false
 image: /images/posts/dia-03/preparando-peru.jpg
