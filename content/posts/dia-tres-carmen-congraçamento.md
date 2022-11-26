@@ -1,6 +1,6 @@
 ---
 title: "Dia 3: Congraçamento por Carmen Maris"
-date: 2022-11-24T06:30:00-05:00
+date: 2022-11-25T06:45:00-05:00
 draft: false
 image: /images/posts/dia-03/antunes-carmen-peru-cropped.jpg
 ogImageWidth: 720
