@@ -1,10 +1,10 @@
 ---
-title: "Dia 4: Conversas"
+title: "Dia 4: Conversas por Thiago Silva"
 date: 2022-11-26T05:45:00-05:00
 draft: false
 image: /images/posts/dia-04/praia.jpg
-ogImageWidth: 1280
-ogImageHeight: 958
+ogImageWidth: 1000
+ogImageHeight: 750
 post_card_class: 'post-card-dia'
 summary: ''
 subtitle:  ''
@@ -43,8 +43,6 @@ Chegamos à praia, Si Fu nos sugeriu que iniciássemos pelas sequencias e começ
 
 Eu tenho alguma dificuldade com o controle de espaço no Dar Hung Jong 打空樁. Como estava diante de um espaço infinito, segui livremente e quase fui parar na água 😁
 
-![Chi Sau Silva e Antunes](/images/posts/dia-04/silva-antunes-chi-sau.jpg)
-
 Antunes tem toneladas de energia acumulada e propôs uma prática diferenciada de Chi Sau para se aproveitar dessa característica dele. Já tem uns dois dias que ele me apresentou e ainda estou com dificuldade de monitorar o que de fato acontece.
 
 Treinamos durante um tempo soltando a mão, mas passei um pouco do ponto para mim e tive que pedir uma pausa 🥵.
@@ -64,9 +62,11 @@ Fomos então para a praia de Siesta Key, enquanto Si Fu estacionava com Antunes,
 
 ![Família Kung Fu em Sista Key Beach](/images/posts/dia-04/SS2.jpg)
 
-Voltamos para casa para almoçarmos, Si Fu nos deu um tempo livre enquanto tinha que resolver algumas coisas. Eu pretendia escrever, entretanto ele precisaria sair para abastecer e entregar um item para Si Mo. Aproveitei para conversar um pouco mais para ele. Nem me lembro a última vez que tive uma oportunidade dessas, talvez mais de 6 anos foi muito significativo.
+Voltamos para casa para almoçarmos, Si Fu nos deu um tempo livre enquanto tinha que resolver algumas coisas. Eu pretendia escrever, entretanto ele precisaria sair para abastecer e entregar um item para Si Mo. Aproveitei para conversar um pouco mais para ele. Nem me lembro a última vez que tive uma oportunidade dessas, talvez mais de 6 anos - foi muito significativo.
 
-Ao voltar para casa trabalhamos Carmen, Antunes e Eu (se alternando entre Chi Sau e uma falha bricolagem) até a hora do jantar no Café Barbosso (na minha cabeça é Barroso). Comemos pizzas deliciosas ao som de uma magnifica Jazz Band. Acho que nem com o melhor dos planejamentos o dia poderia ter sido tão especial.
+Ao voltar para casa trabalhamos Carmen, Antunes e Eu (se alternando entre Chi Sau e uma falha bricolagem) até a hora do jantar no Café Barbosso (na minha cabeça é Barroso). Comemos pizzas deliciosas ao som de uma magnifica Jazz Band. 
+
+Acho que nem com o melhor dos planejamentos o dia poderia ter sido tão especial.
 
 ![Jantar Jazz com a família Kung Fu](/images/posts/dia-04/jantar-jazz.jpg)
 
