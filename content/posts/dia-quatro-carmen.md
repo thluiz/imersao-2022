@@ -2,7 +2,7 @@
 title: "Dia 4: Off to the beach por Carmen Maris"
 date: 2022-11-25T23:45:00-05:00
 draft: false
-image: /images/posts/dia-04/mestre-julio-camacho-marcia-si-fu-si-mo.jpeg
+image: /images/posts/dia-04/SS2.jpg
 ogImageWidth: 1024
 ogImageHeight: 768
 post_card_class: 'post-card-dia'
@@ -47,12 +47,15 @@ O dia a dia, os hábitos, as preferências, a relação familiar consanguínea, 
 
 ![Jantar Jazz](/images/posts/dia-04/jantar-jazz.jpg)
 
+![Si Fu e Si Mo no Café Barbosso](/images/posts/dia-04/mestre-julio-camacho-marcia-si-fu-si-mo.jpeg)
+
 ## A Imersão é uma grande ideia.
 Vamos praticar? Café. Rolar de braços. Caminhada. Vamos botar um vídeo no Youtube. Pausa. Almoço. Consertar mangueira vazando. Lavar louça. Chi Sau de novo. 
 Uma pizza ao som de uma “big band” de Jazz.
 É o fluxo.
 
 ![Si Fu e Si Mo no Café Barbosso](/images/posts/dia-04/mestre-julio-camacho-marcia-si-fu-si-mo.jpeg)
+
  
 --  
 _Carmen Maris_  
