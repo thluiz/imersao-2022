@@ -45,13 +45,11 @@ Eu tenho alguma dificuldade com o controle de espaço no Dar Hung Jong 打空樁
 
 Antunes tem toneladas de energia acumulada e propôs uma prática diferenciada de Chi Sau para se aproveitar dessa característica dele. Já tem uns dois dias que ele me apresentou e ainda estou com dificuldade de monitorar o que de fato acontece.
 
-Treinamos durante um tempo soltando a mão, mas passei um pouco do ponto para mim e tive que pedir uma pausa 🥵.
-
 ![Chi Sau Silva e Antunes](/images/posts/dia-04/silva-antunes-chi-sau.jpg)
 
 ![Chin Choi Antunes](/images/posts/dia-04/antunes-chin-choi.jpg)
 
-Nosso Gong Sau, perdeu o Sau e partimos para outra praia:
+Treinamos durante um tempo soltando a mão, mas passei um pouco do ponto para mim e tive que pedir uma pausa 🥵. Com isso, nosso Gong Sau, perdeu o Sau e partimos para outra praia:
 
 ![Conversas na Praia](/images/posts/dia-04/conversas-na-praia.jpg)
 
@@ -69,6 +67,8 @@ Ao voltar para casa trabalhamos Carmen, Antunes e Eu (se alternando entre Chi Sa
 Acho que nem com o melhor dos planejamentos o dia poderia ter sido tão especial.
 
 ![Jantar Jazz com a família Kung Fu](/images/posts/dia-04/jantar-jazz.jpg)
+
+{{< youtube id="08rKc347ywY" >}}
 
 Até!
 
