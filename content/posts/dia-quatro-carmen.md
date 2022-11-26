@@ -47,8 +47,6 @@ O dia a dia, os hábitos, as preferências, a relação familiar consanguínea, 
 
 ![Jantar Jazz](/images/posts/dia-04/jantar-jazz.jpg)
 
-![Si Fu e Si Mo no Café Barbosso](/images/posts/dia-04/mestre-julio-camacho-marcia-si-fu-si-mo.jpeg)
-
 ## A Imersão é uma grande ideia.
 Vamos praticar? Café. Rolar de braços. Caminhada. Vamos botar um vídeo no Youtube. Pausa. Almoço. Consertar mangueira vazando. Lavar louça. Chi Sau de novo. 
 Uma pizza ao som de uma “big band” de Jazz.
