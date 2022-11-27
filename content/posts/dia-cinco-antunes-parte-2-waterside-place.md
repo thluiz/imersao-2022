@@ -3,9 +3,9 @@
 title: "Dia 5 - Parte 2/2 por Carlos Antunes: Treino em Waterside Place"
 date: 2022-11-26T23:30:00-05:00
 draft: false
-image: /images/posts/dia-05/carmen-antunes-gum-gai-dek-lap-cropped.jpg
-ogImageWidth: 733
-ogImageHeight: 218
+image: /images/posts/dia-05/conversas-si-fu-antunes-cropped.jpg
+ogImageWidth: 1000
+ogImageHeight: 426
 post_card_class: 'post-card-dia'
 summary: ''
 subtitle:  ''
