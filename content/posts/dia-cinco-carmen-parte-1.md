@@ -28,8 +28,6 @@ Fiquei muito insegura. Desde criança não andava naquilo. Assim que pisei foi c
 Um pé pisa muito diferente do outro, fico desalinhada, com os braços tensionados, tenho que pegar velocidade várias vezes para me manter em pé. Me atrapalho bastante.
 Isso tudo é exatamente o que me acontece no Sistema e é num exercício assim que o Si Fu me ajuda a desenvolver aquilo que não consigo sozinha.
 
-![Grupo Patinete](/images/posts/dia-05/grupo-patinete.jpeg)
-
 Outro: a área comum do condomínio de casas tem uns aparelhos fixos daqueles de exercícios que vemos em praças no Rio.
 Si Fu olhou umas barras e um pequeno banco e nos convidou a fazer o Siu Nim Tau em uma versão em uma perna só alternando os dois lados.
 Ela exige muito mais equilíbrio que um patinete.
