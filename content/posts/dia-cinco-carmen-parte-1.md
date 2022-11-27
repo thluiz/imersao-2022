@@ -40,6 +40,10 @@ Esse dispositivo já é em si muito desafiador. Em uma certa altura do chão e c
 
 ![Chi Geuk na barra elevada](/images/posts/dia-05/chi-geuk.jpeg)
 
+
+![Chi Geuk na barra elevada](/images/posts/dia-05/chi-geuk-2-barras-elevadas.jpeg)
+
+
 O que posso dizer é que mais próximo de casa a minha relação com o patinete melhorou muito.
 Já conseguia relaxar os braços e levar a posição de cada pé com mais leveza e estabilidade.
 Até consegui controlar melhor a velocidade.
