@@ -32,7 +32,7 @@ Um ponto interessante é que em Hong Kong existia uma prática marcial de Gong S
 
 ![Conversa no Carro](/images/posts/dia-04/conversas-no-carro.jpg)
 
-# A Praia
+## A Praia
 
 Chegamos à praia, Si Fu nos sugeriu que iniciássemos pelas sequencias e começamos os trabalhos:
 
@@ -66,7 +66,7 @@ Ao voltar para casa trabalhamos Carmen, Antunes e Eu (se alternando entre Chi Sa
 
 Acho que nem com o melhor dos planejamentos o dia poderia ter sido tão especial.
 
-![Jantar Jazz com a família Kung Fu](/images/posts/dia-04/jantar-jazz.jpg)
+![Jantar e Jazz com a família Kung Fu](/images/posts/dia-04/jantar-jazz.jpg)
 
 {{< youtube id="08rKc347ywY" >}}
 
