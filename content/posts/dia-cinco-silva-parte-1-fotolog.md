@@ -27,7 +27,7 @@ Começamos o dia com um belo café preparado pelo Carlos Antunes, que tem sido n
 
 ## Patinetes
 
-Ao sair para nossa caminhada, me deparei com o Si Fu e dois patinetes. O plano seria uma corrida leve hoje, como não posso correr, a solução era usar os patinetes para que pudessemos acompanha-los.
+Ao sair para nossa caminhada, me deparei com o Si Fu e dois patinetes. O plano seria uma corrida leve hoje, como não posso correr, a solução era usar os patinetes para que pudéssemos acompanhá-los.
 
 Acho que eu nunca tinha andado de patinetes antes, esperava que fosse um "skate com volante". Com um pouquinho de Kung Fu me sai bem.
 
@@ -47,7 +47,7 @@ Acho que eu nunca tinha andado de patinetes antes, esperava que fosse um "skate 
 
 ## CrossFit 
 
-O condomínio do Si Fu tem um grande lago com equipamentos de academia espaçados ao redor. Fomos caminhando e parando em cada um descobrindo como usa-los para treinar Kung Fu.
+O condomínio do Si Fu tem um grande lago com equipamentos de academia espaçados ao redor. Fomos caminhando e parando em cada um descobrindo como usá-los para treinar Kung Fu.
 
 ### Barra Elevada 
 
@@ -94,7 +94,7 @@ Ao voltar almoçamos, Si Fu me chamou para um treino reservado de Baat Jaam Do �
 
 ## Sorte
 
-Tínhamos alguns itens a mais para comprar e famos num mall próximo e aproveitamos para jogar na loteria. O premio corre dia 29/11 torçam aí 😋.
+Tínhamos alguns itens a mais para comprar e fomos num mall próximo e aproveitamos para jogar na loteria. O prêmio corre dia 29/11 torçam aí 😋.
 
 ![Sorte](/images/posts/dia-05/fezinha.jpeg) 
 
