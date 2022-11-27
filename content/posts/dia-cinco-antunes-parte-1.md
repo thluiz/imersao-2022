@@ -1,10 +1,10 @@
 ---
-title: "Dia 5: Treinamentos não Convencionais por Carlos Antunes"
+title: "Dia 5 - Parte 1/2 por Carlos Antunes: Treinamentos não Convencionais"
 date: 2022-11-26T23:15:00-05:00
 draft: false
 image: /images/posts/dia-05/carmen-antunes-gum-gai-dek-lap-cropped.jpg
-ogImageWidth: 1080
-ogImageHeight: 711
+ogImageWidth: 733
+ogImageHeight: 218
 post_card_class: 'post-card-dia'
 summary: ''
 subtitle:  ''
