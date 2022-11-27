@@ -20,7 +20,7 @@ Ao ligar o rádio no caminho de volta, no intervalo de umas músicas do Nirvana 
 
 Concordei em silêncio com ele, não pretendia comprar nada, apenas acompanhar in loco esse experimento social, até perguntei se leveríamos as facas, mas fica para outro ano sem inflação.
 
-Voltamos para casa e iniciamos nossos treinos. Antunes foi praticar as formas e a luz estava maravilhosa:
+Voltamos para casa e iniciamos nossos treinos. Antunes foi praticar as listagens e a luz estava maravilhosa:
 
 ![Antunes Cham Kiu](/images/posts/dia-04/antunes-cham-kiu.jpg)
 
