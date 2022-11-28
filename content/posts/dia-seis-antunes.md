@@ -34,7 +34,7 @@ Pegamos o carro e fomos ao Costco, um mercado atacadista um pouco mais longe. Co
 
 ![Cotsco](/images/posts/dia-06/ss04.jpg)
 
-De volta em casa, eu e Thiago fomos instalar o TV enquanto a Carmen resolvia pendencias sobre seu retorno ao Brasil. A dupla CYS-SS já foi melhor nisso, mas conseguimos fazer um trabalho relativamente rápido, ainda que com um desvio de 0,5 polegadas.
+De volta em casa, eu e Thiago fomos instalar o TV enquanto a Carmen resolvia pendencias sobre seu retorno ao Brasil. A dupla CYS-SS já foi melhor nisso, mas conseguimos fazer um trabalho relativamente rápido, ainda que com um desvio de meio centímetro.
 
 ![Instalando TV](/images/posts/dia-06/ss05.jpeg)
 
