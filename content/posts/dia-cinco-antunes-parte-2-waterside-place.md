@@ -16,7 +16,7 @@ author: ss
 
 Passamos num shopping para comprar algumas miudezas e visitamos a Ross e a Marshall's. Voltamos pra casa e tentamos comprar passagens de ônibus para a Carmen, mas não conseguimos. 
 
-Fomos ao Waterside place, um shopping a céu aberto incrível dentro de Lakewood Ranch. No meio de jacarés e tartarugas chinesas (e mosquitos), tivemos um momento de treino incrível. Vimos muito de Cham Kiu, Biu Ji e de vida em geral.
+Fomos ao Waterside place, um shopping a céu aberto incrível dentro de Lakewood Ranch. No meio de jacarés e tartarugas chinesas (e mosquitos), tivemos um momento de treino sensacional. Vimos muito de Cham Kiu, Biu Ji e da vida em geral.
 
 ![Si Fu demonstrando Gan Sau](/images/posts/dia-05/si-fu-demonstrando-gan-sau.jpeg)
 
@@ -28,7 +28,7 @@ Falamos bastante sobre os irmãos kung fu, sobre as características de cada um 
 
 Depois do treino, Si Fu voltou para casa, para pegar Si Taai Vera enquanto nós 3 passamos no mercado Publix para comprar um vinho.
 
-Fomos para a casa da Si Suk Ursula, Si Suk Ricardo e Rebeka, onde tivemos uma recepção incrível. A comida foi tão gostosa e variada quanto os papos, que transitaram de kung fu a sistema político.
+Fomos para a casa da Si Suk Ursula, Si Suk Ricardo e Rebeka, onde tivemos uma recepção impressionante. A comida foi tão gostosa e variada quanto os papos, que transitaram de kung fu a sistema político.
 
 Foi um dia cheio e intenso, mas ainda estávamos com disposição.
 
