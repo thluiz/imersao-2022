@@ -44,6 +44,8 @@ Era pra ser algo rápido e fácil, mas pegamos um horário de saída escolar e o
 
 Fomos na Home Depot e o lugar era absurdamente gigante. Compramos o que precisávamos, mas perdemos muito tempo procurando tudo.
 
+![Home Depot](/images/posts/dia-07/home-depot.webp)
+
 Quando chegamos em casa, Si Fu e Si Taai já estavam arrumados e nos esperando pro jantar. Tomamos um banho rápido, fomos para o escritório do Si Fu e treinamos bastante. O encadeamento lógico do sistema Ving Tsun é incrível, mas a dificuldade em se alcançar o entendimento é igualmente estarrecedora.
 
 ![BJD Antunes](/images/posts/dia-07/ss03.jpeg)
