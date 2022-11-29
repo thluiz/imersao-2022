@@ -17,7 +17,7 @@ Tanto Carmen quanto Antunes já cobriram super bem esse dia, então vou adiciona
 
 ## Luz
 
-Bem impressionante a paisagem de Waterside Place, podemos ver algumas "tartarugas chinesas" nadando e conforme o dia foi se ponto fomos agraciados com uma paisagem belíssima 
+Bem impressionante a paisagem de Waterside Place, podemos ver algumas "tartarugas chinesas" nadando e conforme o dia foi se pondo fomos agraciados com uma paisagem belíssima 
 
 ![Waterside](/images/posts/dia-05/waterside/waterside-01.jpg)
 
@@ -31,7 +31,7 @@ Bem impressionante a paisagem de Waterside Place, podemos ver algumas "tartaruga
 
 ## Práticas (com vídeo)
 
-Praticamos pesado. O foco era Biu Ji, o plano era falar menos, mas falhei miseravelmente.
+Praticamos pesado. O foco era Biu Ji, o plano era falar menos e praticar mais, mas falhei miseravelmente.
 
 ![Waterside](/images/posts/dia-05/waterside/waterside-02.jpg)
 
@@ -44,7 +44,9 @@ Praticamos pesado. O foco era Biu Ji, o plano era falar menos, mas falhei misera
 
 ## Mais Conversas
 
-Conforme Antunes comentou, fechamos a prática falando de diversas características nossas, como nós e outros irmãos lidam com elas. 
+Conforme Antunes comentou, fechamos a prática falando de diversas características nossas, como nós e outros irmãos lidam com elas.
+
+![Waterside](/images/posts/dia-05/waterside/conversa.jpeg)
 
 ![Waterside](/images/posts/dia-05/waterside/waterside-05.jpg)
 
