@@ -13,7 +13,7 @@ author: ss
 
 # Despedida, Baat Jaam Do e Nancy´s
 
-# Despedida
+## Despedida
 
 Acordamos cedo e aproveitamos o fluxo para dar uma arrumada geral nas coisas.
 
@@ -32,6 +32,8 @@ Por sorte, uma família de nova-iorquinos nos ajudou apontando um ônibus irrele
 Saímos da estação, compramos um Sunpass e voltamos pra casa.
 Antes de chegar, paramos numa conveniência para comer pizza com café. Chegamos em casa bem a tempo para assistir o jogo do Brasil
 
+## Baat Jaam Do
+
 Almoçamos rapidamente as sobras do peru e fomos pra área da piscina treinar. Considerando que faz tempo que não tenho a oportunidade de me dedicar a um conteúdo totalmente novo, acabei me sentindo muito enferrujado, não na execução de A ou B, mas na cabeça de aceitação e exploração de conteúdos.
 
 ![BJD Antunes](/images/posts/dia-07/ss02.jpeg)
@@ -45,6 +47,8 @@ Fomos na Home Depot e o lugar era absurdamente gigante. Compramos o que precisá
 Quando chegamos em casa, Si Fu e Si Taai já estavam arrumados e nos esperando pro jantar. Tomamos um banho rápido, fomos para o escritório do Si Fu e treinamos bastante. O encadeamento lógico do sistema Ving Tsun é incrível, mas a dificuldade em se alcançar o entendimento é igualmente estarrecedora.
 
 ![BJD Antunes](/images/posts/dia-07/ss03.jpeg)
+
+## Nancy's
 
 Depois, fomos ao Nancy's BBQ, que fica bem próximo à casa só Si Fu.
 A fama do restaurante não era boa... Várias pessoas já tinham ido até lá e se recusado a comer e isso aumentou minha curiosidade.
