@@ -13,7 +13,7 @@ author: cys
 
 # Serendipidade
 
-O dia de ontem foi enorme. Si Fu citou algum escritor durante o dia: "Escrever ou é fácil ou absolutamente impossível". Pois é, estou na segunda situação desde ontem. Portanto, perdoem, mas vou recorrer a moleta da cronologia.
+O dia de ontem foi enorme. Si Fu citou algum escritor durante o dia: "Escrever ou é fácil ou absolutamente impossível". Pois é, estou na segunda situação desde ontem. Portanto, perdoem, mas vou recorrer a muleta da cronologia.
 
 "Melhor feito que perfeito" já dizia minha avó.
 
@@ -86,7 +86,7 @@ Foi um dia mágico em vários sentidos. Que venham outros, foi só o primeiro!
 
 ***
 
-Para hoje temos o as comemorações do Dia de Ação de Graças, montar a árvore de Natal com a Si Mo (codinome projeto "Guirlanda" - o plano é convencer a Si Mo até o final da viagem a colocar uma Guirlanda na porta. Avisem se virem Guirlanda com flamingos.
+Para hoje temos o as comemorações do Dia de Ação de Graças, montar a árvore de Natal com a Si Mo (codinome projeto "Guirlanda" - o plano é convencer a Si Mo até o final da viagem a colocar uma Guirlanda na porta. Avisem se virem Guirlanda com flamingos).
 
 Até!
 

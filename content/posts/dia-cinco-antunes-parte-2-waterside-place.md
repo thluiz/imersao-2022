@@ -1,6 +1,6 @@
 
 ---
-title: "Dia 5 - Parte 2/2 por Carlos Antunes: Treino em Waterside Place"
+title: "Dia 5 - Parte 2/2 por Carlos Antunes: Treino em Waterside Park"
 date: 2022-11-26T23:30:00-05:00
 draft: false
 image: /images/posts/dia-05/conversas-si-fu-antunes-cropped.jpg
@@ -12,11 +12,11 @@ subtitle:  ''
 author: ss
 ---
 
-# Treinos em Waterside Place
+# Treinos em Waterside Park
 
 Passamos num shopping para comprar algumas miudezas e visitamos a Ross e a Marshall's. Voltamos pra casa e tentamos comprar passagens de ônibus para a Carmen, mas não conseguimos. 
 
-Fomos ao Waterside place, um shopping a céu aberto incrível dentro de Lakewood Ranch. No meio de jacarés e tartarugas chinesas (e mosquitos), tivemos um momento de treino sensacional. Vimos muito de Cham Kiu, Biu Ji e da vida em geral.
+Fomos ao Waterside Park, um shopping a céu aberto incrível dentro de Lakewood Ranch. No meio de jacarés e tartarugas chinesas (e mosquitos), tivemos um momento de treino sensacional. Vimos muito de Cham Kiu, Biu Ji e da vida em geral.
 
 ![Si Fu demonstrando Gan Sau](/images/posts/dia-05/si-fu-demonstrando-gan-sau.jpeg)
 

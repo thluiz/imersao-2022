@@ -21,7 +21,7 @@ Durante a caminhada, tivemos muitas experiências diferentes, seja com patinetes
 
 Plataformas estreitas, lugares confinados, chi geuk, gum gai duk lap. Um patinete, dois patinetes, surf, skate. Realmente existem algumas experiências que só tocam quem as experimentou.
 
-![Chi Sau entre barras paralelas](/images/posts/dia-05/treino-entre-duas-barras.jpeg)
+![Chi Sau entre barras paralelas](/images/posts/dia-05/chi-sau-barras-paralelas-2.jpeg)
 
 ![Gum Gai Duk Lap nas barras](/images/posts/dia-05/carmen-antunes-gum-gai-dek-lap.jpeg)
 

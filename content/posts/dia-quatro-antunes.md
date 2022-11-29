@@ -30,7 +30,7 @@ Voltamos para casa, apenas para descobrir que a Si Mo estava tentando comprar um
 
 Enquanto a aguardávamos para o almoço, Si Fu mostrou um vídeo do Canal Meio, de Pedro Doria.
 
-Almoçamos no meio a papos que variavam de ética vegana até crossfit e fui um momento bem legal.
+Almoçamos no meio a papos que variavam de ética vegana até crossfit e foi um momento bem legal.
 
 Tínhamos tempo até a atividade seguinte. Resolvi deitar para esperar o tempo passar e acabei dormindo, mas acordei a tempo de ouvir Si Fu e meu Si Hing Thiago saindo de carro.
 
