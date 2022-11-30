@@ -58,12 +58,11 @@ Falei bastante sobre minha experiência e de maneira bem profunda.
 Não poderia estar mais grata pelo trabalho que todos fizeram comigo nas práticas e no convívio, afinal, sou muito mais nova como praticante e a coisa anda mais devagar comigo.
 Cada dia valeu a pena.
 
-Meu vôo de Orlando para a escala em Houston sairia 15:30 do dia seguinte e tinha comprado com a ajuda inprescindível da Si Jeh Maria Alice e depois da Si Mo uma passagem de ônibus para outra cidade mais perto do aeroporto.
+Meu vôo de Orlando para a escala em Houston sairia 15:30 do dia seguinte e tinha comprado com a ajuda imprescindível da Si Jeh Maria Alice e depois da Si Mo uma passagem de ônibus para outra cidade mais perto do aeroporto.
 Si Fu, Si Mo, Si Hing Thiago Silva e Si Hing Carlos Antunes me levaram para Tampa para que eu pegasse o ônibus.
 Ali tivemos os cinco ao mesmo tempo a experiência de aprender algo completamente novo: esperávamos ver uma estação de ônibus, mas o endereço era uma estação de trem e na verdade o meu veículo estava parado exatamente do outro lado da rua. Simplesmente me esperando.
-Presença de espírito de todos me ajudo. Devo essa a eles ou perderia o ônibus e teria que dar outro jeito.
+Presença de espírito de todos me ajudou. Devo essa a eles ou perderia o ônibus e teria que dar outro jeito.
 
-A presença de espírito de todos me ajudou.
 
 ![Embarque](/images/posts/dia-06/carmen/carmen-06.jpeg)
 
