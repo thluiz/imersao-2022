@@ -37,7 +37,8 @@ Ela está morando a 300km da casa do Si Fu e tinha vindo para as comemorações 
 
 Embarcamos a Alice e voltamos para pegar o Si Fu. Fomos para casa e demos de cara com um dos famosos "cafés da manhã surpresa da Si Mo". Cantamos parabéns, entregamos presentes (que o Si Fu já até sabia o que seria) e comemos muito bem.
 
-FOTO CAFE
+![Café de Aniversário](/images/posts/dia-09/cafe.jpeg)
+
 Aproveitamos a presença da Alice e fomos para o Waterside Park (também chamado Westside Place). Nos instalamos no nosso tradicional cantinho, entre o suporte das redes e o chafariz do lago.
 
 Praticamos sequencias, Chi Sau e Chi Geuk. Depois de algum tempo, sentamos e nos dedicamos a refletir sobre o momento que estávamos vivendo.
