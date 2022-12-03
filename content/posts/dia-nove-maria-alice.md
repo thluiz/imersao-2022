@@ -3,8 +3,8 @@ title: "Dia 9 por Maria Alice: Um dia de Kung Fu"
 date: 2022-12-01T08:12:00-05:00
 draft: false
 image: /images/posts/dia-09/alice/header-cropped.jpg
-ogImageWidth: 733
-ogImageHeight: 218
+ogImageWidth: 800
+ogImageHeight: 269
 post_card_class: 'post-card-dia'
 summary: ''
 subtitle:  ''
