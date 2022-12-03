@@ -1,5 +1,5 @@
 ---
-title: "Dia 11 por Carlos Antunes: O dia de 72 horas"
+title: "Dia 10 por Carlos Antunes: O dia de 72 horas"
 date: 2022-12-01T10:45:00-05:00
 draft: false
 image: /images/posts/dia-10/header-cropped.jpg
@@ -11,9 +11,13 @@ subtitle:  ''
 author: ss
 ---
 
-Quando despertei, sihing Silva já estava na acordado mexendo no computador. O fuso não bateu muito bem para ele e acho que ele dorme apenas umas 4h por noite… mas quando o dia começa, ele não faz corpo mole, nem parece cansado. Meu colega de quarto é um parceirão.
+# O dia de 72 horas
+
+Quando despertei, Si Hing Silva já estava na acordado mexendo no computador. O fuso não bateu muito bem para ele e acho que ele dorme apenas umas 4h por noite… mas quando o dia começa, ele não faz corpo mole, nem parece cansado. Meu colega de quarto é um parceirão.
 
 ![Chi Yau Si - Thiago Luiz Silva](/images/posts/dia-10/01.jpeg)
+
+## Despedida da Alice
 
 Eu precisava passar na caixa de correio, na área da administração do condomínio, para pegar uma encomenda. Chamamos a Maria Alice e partimos os 3 para lá. 
 
@@ -32,24 +36,30 @@ No carro, continuamos os papos de alto nível. Alice é uma menina muito intelig
 
 Como o ônibus também tinha ficado preso na batida, haveria um atraso de 20 minutos. 
 
-Não poderiamos ficar tanto tempo, então nos despedimos e voltamos pra casa. 
+Não poderíamos ficar tanto tempo, então nos despedimos e voltamos pra casa. 
 
 ![Alice](/images/posts/dia-10/03.jpeg)
 
-Encontramos a Si Mo e comecamos uma força tarefa para instalação de cortinas, limpeza na casa e instalação de um sistema de segurança.
-Algum tempo depois, Si Fu chegou da rua. Ele tinha ido levar a Sisok Ursula no aeroporto. 
+## Força tarefa
 
-Almoçamos e fomos visitar a Lowes, uma loja de obras , como o Casa Show. Compramos algumas coisas e fomos olhar novamente a Goodwill. Nao resisti e gastei dinheiro novamente
+Encontramos a Si Mo e começamos uma força tarefa para instalação de cortinas, limpeza na casa e instalação de um sistema de segurança.
+Algum tempo depois, Si Fu chegou da rua. Ele tinha ido levar a Si Suk Ursula no aeroporto.
+
+Almoçamos e fomos visitar a Lowes, uma loja de obras, como o Casa Show. Compramos algumas coisas e fomos olhar novamente a Goodwill. Não resisti e gastei dinheiro novamente
 
 ![Lowes](/images/posts/dia-10/lowes.jpeg)
 
 Si Fu queria estrear a churrasqueira e passamos no mercado. Quando voltamos pra casa, ele e Thiago entraram numa reunião e eu fiquei com a Si Taai preparando as coisas para o churrasco. 
 
+## Encontro de Excelência
+
 Com as coisas mais ou menos prontas, me juntei ao Si Fu no momento do Encontro de Excelência, uma iniciativa do meu Si Hing Roberto para explorar com atenção e sob a tutela do Si Fu os domínios do sistema. 
 
-![Lowes](/images/posts/dia-10/roberto.jpeg)
+![Encontro Si Hing Roberto](/images/posts/dia-10/roberto.jpeg)
 
 Si Fu apresentou o dispositivo do pak da, eu pratiquei com o Thiago e foi uma experiência incrível, focada na energia de preenchimento.
+
+## Estreando a Churrasqueira
 
 Descemos para o churrasco e ficamos treinando a sequência do Baat Jam Do. 
 
