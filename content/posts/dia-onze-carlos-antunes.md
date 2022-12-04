@@ -3,8 +3,8 @@ title: "Dia 11 por Carlos Antunes: A viagem para NY"
 date: 2022-12-03T00:45:00-05:00
 draft: false
 image: /images/posts/dia-11/header-cropped.jpg
-ogImageWidth: 1040
-ogImageHeight: 493
+ogImageWidth: 1000
+ogImageHeight: 442
 post_card_class: 'post-card-dia'
 summary: ''
 subtitle:  ''
