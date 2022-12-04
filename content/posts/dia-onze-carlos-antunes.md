@@ -26,6 +26,8 @@ Fui com o Silva, pegamos o transfer e chegamos no aeroporto. Tudo aconteceu no t
 
 Embarcamos num voo rápido e tranquilo. Descendo em NY a frequência já era outra. O frio, o cheiro, as pessoas, os carros… tudo era diferente da Flórida. 
 
+![Central Park](/images/posts/dia-11/chegada-ny.jpeg)
+
 Decidimos ir para o Diamond District de Manhattan, no trabalho de um primo do Si Fu e da Si Suk Ursula, para deixar as malas. Já faz 7 anos que não passo em NY e minha falta de intimide com a cidade, somada ao cansaço, me deixou lento para lidar com o transporte público. Demorei bastante tempo antes de sintonizar e reduzir as mancadas. 
 
 O primo, de apelido Kiko, trabalha como cravador de pedras em metal. Além de ser muito solícito, simpático e divertido, nos deu uma aula sobre joalheria. 
@@ -42,7 +44,13 @@ Fomos ao Central Park, à 5ª Avenida, ao Rockefeller Center, à Saks, à Times 
 
 Todo esse passeio me fez lembrar o quanto essa cidade é impressionante, além de caótica. 
 
+![Central Park](/images/posts/dia-11/gerk-jong-central-park.jpg)
+
+![Central Park](/images/posts/dia-11/tansau-central-park.jpg)
+
 ![Central Park](/images/posts/dia-11/central-park.jpeg)
+
+![Central Park](/images/posts/dia-11/arvore-natal.jpg)
 
 Quando começou a cair a noite, pegamos o metrô e fomos pro hotel. Arrumamos coisas, peguei uma pizza num lugar perto e sentamos com Si Mo, Si Fu e Si Suk Ursula em nosso quanto para comer e conversar.
 
