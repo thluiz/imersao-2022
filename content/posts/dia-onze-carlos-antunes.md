@@ -32,7 +32,9 @@ Decidimos ir para o Diamond District de Manhattan, no trabalho de um primo do Si
 
 O primo, de apelido Kiko, trabalha como cravador de pedras em metal. Além de ser muito solícito, simpático e divertido, nos deu uma aula sobre joalheria. 
 
-![Alice](/images/posts/dia-11/kiko.jpg)
+![Kiko](/images/posts/dia-11/kiko.jpg)
+
+![Kiko](/images/posts/dia-11/01.jpeg)
 
 Partimos para explorar a cidade, mas estava chegando a hora do jogo do Brasil. Buscamos um restaurante e acabamos parando num mexicano tradicional.
 
