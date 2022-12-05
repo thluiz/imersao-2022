@@ -14,9 +14,13 @@ author: ss
 # Endgame
 
 Acordei com o Si Fu batendo na porta e me levantei para abrir. O Chi Sau do dia anterior tinha gerado muitas questões em mim e foi muito importante fazer uma reunião matinal para podermos aparar as arestas, limpar algumas questões e prosseguir inteiros nesse último dia de viagem.
+
 A lição que ficou para mim não é nova, mas sempre pertinente. Como diria Confúcio, “um homem que comete um erro e não corrige está cometendo dois erros”.
+
 Passei no Dunkin Donuts para comprar café da manhã e levei para o hotel. Comemos rapidamente e fomos para a sala de convenções do hotel, onde aconteceriam diversos seminários realizados pela maioria dos grandes mestres presentes.
+
 Si Gung foi o primeiro a falar, seguido por uma escalação impressionante de Si Baak Gungs. O resultado daquela manha foi uma percepção surpreendente de como o entendimento e a forma de transmissão dos descendentes diretos de Si Taai Gung Moy Yat é completamente diferente de Si Fu para Si Fu.
+
 FOTO LATERAL EU E SIFU NO SEMINARIO
 Dizem que o bom kung fu te permite expressar seu verdadeiro eu e o que pudemos ver ali foram diversos mestres excelentes.
 
