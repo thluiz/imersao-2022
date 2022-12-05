@@ -59,3 +59,10 @@ Quando começou a cair a noite, pegamos o metrô e fomos pro hotel. Arrumamos co
 ![Quarto](/images/posts/dia-11/quarto.jpeg)
 
 Depois de acertar detalhes do dia seguinte e rir um pouco, deitamos para descansar
+
+--  
+_Carlos Antunes_  
+_Moy Shan Si_  
+_梅 山 士_  
+
+***
